@@ -1,0 +1,2 @@
+# PoundSterlingAccount
+PoundSterlingAccount (GBP)es una Criptomoneda emparejada a la £. Su valor es siempre igual a la £. Todas las GBP digitales están garantizadas 100% en el equivalente en nuestras cuentas en Libras Esterlinas.  1 GBP = 1 £ Creando cuenta en Libra Esterlina es una herramienta para realizar o vender productos y servicios en Libras Esterlinas, desde una cuenta garantizada y fiable. Te ofrecemos una cuenta segura, garantizada 100% y bajos comisiones. Crea tu cuenta en Libra Esterlina pagando con EUROS aquí
